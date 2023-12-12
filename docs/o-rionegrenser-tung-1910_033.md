@@ -1,6 +1,3 @@
-Claro, aqui está o texto formatado em linguagem Markdown:
-
-```markdown
 # "O Rio Rionegrense"
 
 ## MANCHETE
