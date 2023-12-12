@@ -1,3 +1,5 @@
+[Link da publicação original](https://memoria.bn.br/DOCREADER/DocReader.aspx?bib=721034&pagfis=1)
+
 # "O RIO NEGRENSE"
 
 ## Redação e Oficina:
