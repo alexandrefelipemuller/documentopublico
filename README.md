@@ -9,3 +9,5 @@ Esta página contém links para edições digitalizadas de periódicos históric
 - [O Rionegrense - 1924 - Edição 002](/docs/o-rionegrense-1924-002.md)
 - Curitiba
 - [Der Beobatcher - 1902 - Edição 001](/docs/der-beobatcher-1902_25.md)
+- Joinville
+- [Kolonie Zeitung - 1872 - Edição 001](/docs/kolonie-zeitung-1854.md)
