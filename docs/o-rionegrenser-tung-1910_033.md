@@ -1,3 +1,4 @@
+[Link da publicação original](https://memoria.bn.br/DocReader/DocReader.aspx?bib=761699&PagFis=1)
 # "O Rio Rionegrense"
 
 ## MANCHETE
