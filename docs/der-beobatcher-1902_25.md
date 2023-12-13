@@ -1,10 +1,11 @@
 [Link da publicação original](https://memoria.bn.br/DocReader/DocReader.aspx?bib=847216&pagfis=1)
 
 # Der Beobachter
-**Curitiba 5 Abril 1902**  
-*Edição 25*
+## Um Jornal Independente Alemão para o Brasil
+### Publicado semanalmente, duas vezes: às quartas-feiras e sábados
+#### Sábado, 5 de Abril de 1902 N. 25
 
-"**Novamente sobre escola e educação moral.**  
+**Novamente sobre escola e educação moral.**  
 (no jornal "Correio")  
 (e.d.)
 
