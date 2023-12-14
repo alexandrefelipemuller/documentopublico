@@ -1,3 +1,10 @@
+[Link da publicação original](https://memoria.bn.br/DocReader/DocReader.aspx?bib=847216&pagfis=9)
+
+# Der Beobachter
+## Um Jornal Independente Alemão para o Brasil
+### Publicado semanalmente, duas vezes: às quartas-feiras e sábados
+#### Sábado, 10 de maio de 1902 N. 35
+
 # A Trágica Realidade da Guerra
 
 À medida que a firme afirmação se torna cada vez mais clara, de que a guerra é uma destruição devastadora, o mesmo acontece com o desafio de compreender este fenômeno. Com o sacrifício de vidas próprias e de outras, dificilmente algo pode ser mais desmoralizante e desorientador do que a agressão contra a dignidade humana que a guerra representa. Quem argumenta o contrário deve consistentemente manter o ponto de vista de que o laço entre nações é o mais fraco possível. A guerra é destrutiva, corrosiva, e todos os entendimentos de justiça e moral são desafiados ao máximo, especialmente quando consideramos as tensões e conflitos desencadeados pela guerra na história moderna e o rigor da disciplina militar.
@@ -534,9 +541,21 @@ scher, Hermann Zurmi, Ewall Wendler,
 Wilbelm Kalkmann, L... Karensy e
 Otto Nagel
 
-Bu ch. CONVITE PARA ASSEMBLEIA GERAL,
-no
-Salão Tivoli,
+---
+Confeitaria Cometa.
+Rua Quinze de Novembro, Nr. 48,
+Em qualquer época:
+- Vinhos de gelo,
+- Ponche e
+- Cerveja quente.
+Hei. Henke Jr.
+
+Confeitaria Cometa.
+
+---
+
+CONVITE PARA ASSEMBLEIA GERAL,
+no Salão Tivoli,
 Domingo, 11 de maio
 às 3 horas da tarde
 ASSEMBLEIA
