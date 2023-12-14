@@ -11,6 +11,7 @@ Abaixo estão os links para as edições específicas mencionadas:
 - Curitiba
 - [Der Beobatcher - 1902 - Edição 025](/docs/der-beobatcher-1902_25.md)
 - [Der Beobatcher - 1902 - Edição 034](/docs/der-beobachter-1902_34.md)
+- [Der Beobatcher - 1902 - Edição 035](/docs/der-beobachter-1902_35.md)
 - Joinville
 - [Kolonie Zeitung - 1872 - Edição 001](/docs/kolonie-zeitung-1854.md)
 - [Kolonie Zeitung - 1886 - Edição 003](/docs/kolonie-zeitung-1886-003.md)
