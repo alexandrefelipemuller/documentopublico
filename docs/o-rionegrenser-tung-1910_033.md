@@ -1,10 +1,9 @@
-[Link da publicação original](https://memoria.bn.br/DocReader/DocReader.aspx?bib=761699&PagFis=1)
-# "O Rio Rionegrense"
+[Link da publicação original](https://memoria.bn.br/DocReader/docreader.aspx?bib=761699&pesq=&pagfis=5)
+# O Rio Rionegrenser Zeitung
 
-## MANCHETE
-
+# 19 Agosto 1910
 ### Edição Nº 33
-
+## MANCHETE
 #### "O Pequeno Vagabundo"
 *Uma narrativa do inglês de Tb. Conrabien.*
 
