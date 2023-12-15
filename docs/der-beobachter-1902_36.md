@@ -11,9 +11,7 @@ Para o Paraná e Santa Catarina.
 - Guarapuava: XII.
 - Yapira.
 
-**Curitiba, Estado do Paraná, Brasil, Quarta-feira, 14 de Maio**
-
-**1902 N. 36**
+**Curitiba, Estado do Paraná, Brasil, Quarta-feira, 14 de Maio 1902 Edicao N. 36**
 
 ## 13 de maio
 
