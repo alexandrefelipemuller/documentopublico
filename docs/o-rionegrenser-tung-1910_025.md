@@ -65,39 +65,41 @@ Imigrantes japoneses começarão a chegar novamente ao Brasil. Conforme relatado
 
 Em Prados, uma jovem de 22 anos, em conluio com sua mãe, tentou se livrar do fardo do fruto de um amor secreto, tentando enterrar seu recém-nascido vivo. No entanto, o crime foi rapidamente descoberto. A polícia realizou escavações e encontrou a criança ainda viva! A mãe cruel e sua mãe foram presas.
 
-## Obtenha um relógio brilhantemente
+## Classificados
+
+### Obtenha um relógio brilhantemente
 Obtenha um relógio brilhantemente sofisticado por um preço quase insignificante!
 
 **Relógios LONGINES e PERFECTA** disponíveis em parcelas, com sorteios semanais de até 45.000. Para mais informações, entre em contato com o nosso representante local em Rio Negro.
 
-**Escola de Língua Alemã**
+### Escola de Língua Alemã
 
 Oferecemos aulas de alemão pelo método moderno "Berlitz" em apenas 3 meses. Aulas duas vezes por semana ministradas por professora experiente em escola católica.
 
-**Francisco Myrkowski - Itayopolis**
+### Francisco Myrkowski - Itayopolis
 
 Uma grande seleção de artigos de inverno agora disponíveis: cachecóis e lenços de seda, camisas masculinas modernas disponíveis em uma ampla variedade a preços acessíveis, bem como uma variedade de roupas infantis, luvas e sapatos.
 
-**Agradecimento**
+### Agradecimento
 
 Sebastião Alves da Maia expressa sua gratidão a todas as pessoas que ofereceram seu apoio e condolências pelo falecimento de sua estimada esposa, Anna da Maia, no dia 19 do corrente.
 
-**Eduardo Vogt - Fotógrafo**
+### Eduardo Vogt - Fotógrafo
 
 Disponível por um tempo limitado, ofereço meus serviços ao respeitado público para fotografias de todos os tipos, incluindo retratos individuais, grupos e arquitetura. Especialmente recomendado para associações e escolas. Também disponível para visitas domiciliares. Assinado: O fotógrafo oficial da escola católica local.
 
-**Francisco Myerkowski - Itayopolis**
+### Francisco Myerkowski - Itayopolis
 
 Para o próximo inverno, recomendo meu amplo estoque de roupas de inverno, incluindo meias de lã para homens e mulheres, luvas e sapatos, além de modernas camisas masculinas disponíveis em uma grande variedade a preços acessíveis.
 
-**Vermicida de G. Bortiger**
+### Vermicida de G. Bortiger
 
 Reconhecido como o melhor remédio para eliminar vermes intestinais. Eficácia garantida e seguro para crianças. Disponível na maioria das farmácias e lojas. O Sr. B. B. atesta ter visto uma menina eliminar mais de 300 lombrigas usando este produto.
 
-**Artigos de Escritório**
+### Artigos de Escritório
 
 Uma ampla variedade de artigos de escritório disponíveis a preços acessíveis, incluindo diários, livros-razão, índices, cadernos e muito mais, disponíveis na gráfica deste jornal.
 
-**Frutas e Mudas**
+### Frutas e Mudas
 
 Oferecemos enxertos de um e dois anos de maçãs, peras, ameixas, cerejas, amêndoas, damascos e nêsperas, além de outras plantas e árvores frutíferas, disponíveis na gráfica deste jornal.
