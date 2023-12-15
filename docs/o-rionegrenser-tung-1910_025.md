@@ -1,6 +1,6 @@
-[Link da publicação original](https://memoria.bn.br/DocReader/DocReader.aspx?bib=847216&pagfis=1)
-# "O Rio Rionegrenser Zeitung" Edição 23 - 1910
-
+[Link da publicação original](https://memoria.bn.br/DocReader/docreader.aspx?bib=761699&pesq=&pagfis=1)
+# "O Rio Rionegrenser Zeitung" 
+# 4 Julho 1910 - Edição 23
 **Assinaturas do jornal** são aceitas a qualquer momento, com pagamento antecipado necessário em todas as situações.
 
 Recentemente, uma situação de insurreição foi marcada por uma dissonância estridente. Em um incidente notável, um indivíduo identificado como Paulista arrancou e insultou uma bandeira brasileira. A polícia agiu prontamente, ordenando a detenção dos envolvidos e colocando o Consulado Brasileiro sob vigilância, como medida preventiva contra possíveis ataques do público.
