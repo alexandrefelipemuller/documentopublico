@@ -1,4 +1,8 @@
 # Documento Público
+| ⚠️ Aviso! |
+|:---------------------------|
+| Esta página foi descontinuada! todos os textos foram migrados pra Wikimedia:
+[Clique aqui para ir a Wiki](https://documentopublico.miraheze.org) |
 
 O Documento Público é um repositório de edições digitalizadas de periódicos históricos. Neste portal, você encontrará documentos em formato de texto para pesquisa não apenas pela data, mas também pelo conteúdo textual. Os documentos são traduzidos das línguas originais para o português, proporcionando acesso a informações valiosas e históricas.
 
